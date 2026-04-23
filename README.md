@@ -1,2 +1,2 @@
 # Our-Resourcepacks
-Made with hard work and supported
+https://sealdiestging.qzz.io
